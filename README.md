@@ -1,2 +1,2 @@
 # repo236
-Que bonit repositorio
+Que bonito repositorio
